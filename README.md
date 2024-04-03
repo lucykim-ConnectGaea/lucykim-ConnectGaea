@@ -1,4 +1,4 @@
-Hi, I’m Lucy Njambi, a Geospatial and Remote Sensing Expert.
+Hi, I’m Lucy Kimani, a Geospatial and Remote Sensing Expert.
 I am Passionate about Earth observation and  spatial data analysis with a focus on sustainable and climate-smart solutions.
 I’m looking to collaborate on projects in climate change, environment, urban planning and agriculture...
 Email: connectgaea@gmail.com, njambily@gmail.com.
