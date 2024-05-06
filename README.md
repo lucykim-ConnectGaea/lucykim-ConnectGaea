@@ -6,7 +6,7 @@ I'm all about crafting sustainable and climate-smart solutions through Earth obs
 I'm eagerly seeking collaborations on projects that dance to the beat of climate change, environment conservation, urban planning, and agriculture innovation. 🌱
 Let's team up and create a symphony of positive change! 🌟
 
-You can reach out to me at connectgaea@gmail.com or njambily@gmail.com to spark the conversation.
+You can reach out to me at njambily@gmail.com to spark the conversation.
 
 Oh, and don't forget to join me on my colorful blog adventure, where I share tales of conservation, climate change victories, and agriculture marvels at https://njambily.wixsite.com/connect-gaea.
 
