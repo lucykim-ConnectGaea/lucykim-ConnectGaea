@@ -4,7 +4,7 @@ I'm Lucy Kimani, a Geospatial and Remote Sensing Expert, on a joyous journey thr
 I'm all about crafting sustainable and climate-smart solutions through Earth observation and  spatial data analysis.
 
 I'm eagerly seeking collaborations on projects that dance to the beat of climate change, environment conservation, urban planning, and agriculture innovation. 🌱
-Let's team up and create a symphony of positive change! 🌟
+Let's team up and create positive change! 🌟
 
 You can reach out to me at njambily@gmail.com to spark the conversation.
 
