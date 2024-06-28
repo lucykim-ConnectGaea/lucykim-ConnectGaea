@@ -8,7 +8,8 @@ Let's team up and create positive change! 🌟
 
 You can reach out to me at njambily@gmail.com to spark the conversation.
 
-Oh, and don't forget to join me on my colorful blog adventure, where I share tales of conservation, climate change victories, and agriculture marvels at https://njambily.wixsite.com/connect-gaea.
+Oh, and don't forget to join me on my colorful blog adventure, where I share tales of conservation, climate change victories, and agriculture marvels at https://connectgaea.substack.com/
+
 
 Here's to a world of endless possibilities and boundless positivity! 
 
